@@ -1,1 +1,2 @@
 # Biryani
+Biryani is a mixed rice dish with its origins among the Muslims of Indian subcontinent. It can be compared to mixing a curry, later combining it with semi-cooked rice separately. This dish is especially popular throughout the Indian subcontinent, as well as among its diaspora. It is also prepared in other regions such as Iraq, Kurdistan. It is made with Indian spices, rice, and meat (chicken, beef, goat, pork, lamb, prawn, or fish), and sometimes, in addition, eggs or potatoes in certain regional varieties.
